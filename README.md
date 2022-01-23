@@ -12,7 +12,7 @@ I love Dogs, Video games, Science and Technology!
 | ------------- | ------------- |
 | I'm a mondioring dog trainer  | My dog of course |
 | I can rock climb up to 6a-6b | Puzzles |
-| I'm smart (maybe) | Chocolate  |
+| I'm awkward | Chocolate  |
 
  # My objective and fears
  I wish to learn as much as I can, so that I can find what is best suited for me!
